@@ -1,0 +1,1 @@
+# A_Novel_IoT_Architecture_based_on_5G-IoT_and_Next_Generation_Technologies---Summary
